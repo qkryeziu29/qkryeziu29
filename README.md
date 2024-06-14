@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @qkryeziu29
+- 👋 Hi, I’m Q
 - 👀 I’m interested in anything data, tech and sports
 - 🌱 I’m currently learning about AI and forecasting 
 - 😄 Pronouns: she/her
